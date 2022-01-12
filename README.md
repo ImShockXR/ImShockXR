@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ImShockXR
+- 👀 I’m interested in ... XR Development
+- 🌱 I’m currently learning ... XR Development
+- 💞️ I’m looking to collaborate on ... XR Development
+- 📫 How to reach me ... ckww98@gmail.com
